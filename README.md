@@ -1,1 +1,1 @@
-# brianseim.github.io
+# Mummy's Mask Campaign by BSDM
